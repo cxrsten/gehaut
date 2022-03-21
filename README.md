@@ -7,7 +7,7 @@
 - 🥋 Does a lot of Judo (3rd Kyu + trainer license d)  
   
 
-- 🔰 Administration, Developement and Roomgirl @ TJC-network  
+- 🔰 Administration, Developement and Roomgirl @ @TJC-Team
   
 
 - 🎵 Baritone, Trombone, Tuba, Piano, Drumset, Trumpet, Bassoon, Violin  
