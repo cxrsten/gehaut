@@ -1,7 +1,7 @@
 ### <div align="center">👋 I'm Carsten, part time idiot and hobby developer.</div>  
   
 
-- 🙍‍♂️ Student preparing for A-level exams  
+- 🙍‍♂️ Student done with A-level exams  
   
 
 - 🥋 Does a lot of Judo (3rd Kyu + trainer license d)  
@@ -10,7 +10,7 @@
 - 🔰 Administration, Developement and Roomgirl @ @TJC-Team
   
 
-- 🎵 Baritone, Trombone, Tuba, Piano, Drumset, Trumpet, Bassoon, Violin  
+- 🎵 Brass, Strings and Keys
   
 
 <br/>  
