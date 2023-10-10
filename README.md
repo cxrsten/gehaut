@@ -1,7 +1,7 @@
 ### <div align="center">👋 I'm Carsten, part time idiot and hobby developer.</div>  
   
 
-- 🙍‍♂️ Student done with A-level exams  
+- 🙍‍♂️ Student B.Sc. E-Government 
   
 
 - 🥋 Does a lot of Judo (3rd Kyu + trainer license d)  
